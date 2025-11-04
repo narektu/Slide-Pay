@@ -1,6 +1,6 @@
 Created by Tutundzhian Narek on 11/04/2025.
 
-GitHub: [@narekkt](https://github.com/narekkt)  
+GitHub: [@narektu](https://github.com/narektu)  
 LinkedIn: [@narek1t](https://linkedin.com/in/narek1t)
 
 ⚙️ How It Works
